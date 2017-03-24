@@ -1,0 +1,11 @@
+tugas2$10
+tugas2$1
+tugas2$2
+tugas2$3
+tugas2
+tugas2$4
+tugas2$5
+tugas2$6
+tugas2$7
+tugas2$8
+tugas2$9
